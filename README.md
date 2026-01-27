@@ -1,1 +1,0 @@
-# Wipro-NGA-training
